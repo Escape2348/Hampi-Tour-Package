@@ -1,2 +1,14 @@
-# Hampi-Tour-Package
-Explore amazing Hampi Tour Package Travel destination around Bengaluru
+Hampi and Badami: A Journey Through Karnataka’s Historic Heart
+Step into Karnataka’s remarkable past with Escape2Explore’s Hampi and Badami tour. From the monumental temples and stone-carved landmarks of Hampi to Badami’s dramatic cave temples and sandstone cliffs, this trip brings together history, architecture and striking landscapes. It is a memorable getaway for travellers who want to explore some of the region’s best-known heritage sites in one journey.
+
+Hampi, a UNESCO World Heritage Site, is famed for the ruins of the Vijayanagara Empire. Among its highlights are Virupaksha Temple, Vittala Temple and the celebrated Stone Chariot, along with Hampi Bazaar, the Elephant Stables and Lotus Mahal. Set amid boulder-strewn scenery near the Tungabhadra River, these historic sites invite visitors to slow down, admire intricate stonework and imagine life in the once-thriving city.
+
+The journey continues to Badami, where rock-cut cave temples showcase detailed carvings and sculptures. The itinerary also includes Badami Fort, Agastya Teertha Lake and Bhutanatha Temple. Nearby Aihole and Pattadakal add even more depth to the experience: Aihole is known for its early temple architecture, while Pattadakal is recognised as a UNESCO World Heritage Site for its group of historic temples. Together, these destinations reveal the richness and variety of Karnataka’s architectural heritage.
+
+Escape2Explore’s Hampi and Badami tour is planned as a two-day sightseeing experience, with an overnight departure from Bengaluru. The first day focuses on Badami, Aihole and Pattadakal, followed by an overnight stay. On the second day, travellers explore key landmarks in Hampi before beginning the return journey to Bengaluru. The package page lists transportation, accommodation, breakfasts, dinner, tea and snacks, sightseeing as per the itinerary, and a trip captain among its inclusions. Lunch and entry charges at sightseeing locations are listed separately, so check the current Hampi Badami tour details before booking.
+
+As the itinerary covers several heritage sites, comfortable walking shoes, sun protection, drinking water and a camera can make the trip more enjoyable. Carry personal medication and an extra set of clothes, and be prepared for a full schedule with time spent travelling between destinations. Follow site rules and respect the historical monuments throughout your visit.
+
+For travellers drawn to ancient architecture, cultural history and landscapes shaped by centuries of human craftsmanship, Hampi and Badami make a compelling combination. Explore the temples, forts and historic streets with Escape2Explore, and experience two of Karnataka’s most fascinating destinations in one memorable getaway. Visit Escape2Explore’s Hampi Badami tour page for the latest itinerary and booking information
+
+Visit:Escape2explore[https://www.escape2explore.com/]
